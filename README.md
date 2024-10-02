@@ -6,3 +6,6 @@
 ![Dragon](https://github.com/user-attachments/assets/9c6bec0d-6576-4675-bc9f-4df5bc85ab8d)
 ![Bluebird](https://github.com/user-attachments/assets/7b1cfebc-3252-424e-b349-690464ed6af8)
 ![KelpMe](https://github.com/user-attachments/assets/2c6349a9-3fbd-41bf-a704-89bdd93aafad)
+![Mueble](https://github.com/user-attachments/assets/d1388b6a-d8c2-4dd0-a314-5d72bdc1de0d)
+![Mesa de trabajo 1](https://github.com/user-attachments/assets/922cbcbf-374e-4623-8d1b-f8fbedf44f0e)
+
