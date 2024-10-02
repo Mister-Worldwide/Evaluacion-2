@@ -1,6 +1,6 @@
 ![Golem](https://github.com/user-attachments/assets/e947fd47-a78c-4a73-bb35-1410cdf9b0c6)
 ![Zapatillas](https://github.com/user-attachments/assets/e24365bd-d1c7-4d7b-870f-98be80586ce4)
-![Ilustracion 1](https://github.com/user-attachments/assets/b235c202-82d4-45c4-8314-6e430d5b2d6f)
+![Ilustracion 1](https://github.com/user-attachments/assets/23154265-14f5-4a46-81fb-276e9795402d)
 ![healemup](https://github.com/user-attachments/assets/c4b2d234-9084-47d4-b920-8a5cc4afd6be)
 ![M C](https://github.com/user-attachments/assets/964e2759-2231-43ce-ba73-78e98d4a04ce)
 ![Dragon](https://github.com/user-attachments/assets/9c6bec0d-6576-4675-bc9f-4df5bc85ab8d)
