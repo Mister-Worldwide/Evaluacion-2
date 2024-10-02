@@ -12,5 +12,6 @@
 ![Williams Collage](https://github.com/user-attachments/assets/8800f3f7-5fc4-49f7-bdaf-522c89ecb951)
 ![Williams icono](https://github.com/user-attachments/assets/f468b923-ca42-4309-b0b0-63926bc7b58f)
 
-![Aboutme image](https://github.com/user-attachments/assets/d724b52d-3a62-4046-ae0a-26977a08e918)
+![Aboutme image](https://github.com/user-attachments/assets/4712da31-3c7b-4495-b9bd-5426989544da)
+
 
