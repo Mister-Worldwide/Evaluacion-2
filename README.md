@@ -9,3 +9,5 @@
 ![Mueble](https://github.com/user-attachments/assets/d1388b6a-d8c2-4dd0-a314-5d72bdc1de0d)
 ![Mesa de trabajo 1](https://github.com/user-attachments/assets/922cbcbf-374e-4623-8d1b-f8fbedf44f0e)
 
+![Williams Collage](https://github.com/user-attachments/assets/8800f3f7-5fc4-49f7-bdaf-522c89ecb951)
+![Williams icono](https://github.com/user-attachments/assets/f468b923-ca42-4309-b0b0-63926bc7b58f)
